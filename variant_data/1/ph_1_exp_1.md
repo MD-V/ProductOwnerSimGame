@@ -1,0 +1,1 @@
+Leider haben Sie die Stakeholder nicht richtig eingeschätzt. Dadurch könnten sie sich außen vor gelassen fühlen.

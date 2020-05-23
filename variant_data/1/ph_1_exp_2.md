@@ -1,0 +1,1 @@
+Sie haben sich bei den Stakeholdern einen Namen gemacht. Dadurch, dass sie die Stakeholder richtig eingeschätzt haben, können diese im Laufe des Projektes passend betreut werden.
